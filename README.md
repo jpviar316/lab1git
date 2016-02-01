@@ -1,2 +1,2 @@
 # lab1git
-Jacqueline Viar
+Jacqueline Viar: Remember to email CST 200 students today!
